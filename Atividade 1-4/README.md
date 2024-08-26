@@ -1,1 +1,1 @@
-Atividade 1-4 / Gabriel Silva e Sousa
+Atividade 1-4 / Gabriel Silva e Sousa.
